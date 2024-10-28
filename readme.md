@@ -9,7 +9,7 @@
 
     
 
-Here’s a clear and concise version for a respiratory assessment:
+Hereâ€™s a clear and concise version for a respiratory assessment:
 
 ### Steps for Respiratory Assessment:
 
